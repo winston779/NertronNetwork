@@ -1,6 +1,6 @@
 # Nertron Network机场官网地址
 
-最新地址：[cloud.awa520.cloud](https://awacloud.net/#/register?code=8Qg7rXt9)
+最新地址：[cloud.awa520.cloud](https://nertron.moe233.app/#/register?code=8Qg7rXt9)
 
 ## Nertron Network介绍
 
